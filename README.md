@@ -39,7 +39,7 @@ Du hast eine Idee, brauchst Hilfe oder willst einfach nur Hallo sagen?
 
 👉 **Komm auf meinen Discord-Server** – dort beantworte ich alle Fragen direkt:
 
-[🎮 Zum Discord-Server]()
+[🎮 Zum Discord-Server](https://discord.gg/gagTvTJK3q)
 
 > Alternativ findest du mich auf Discord unter: `kev_1997`
 
